@@ -2,12 +2,10 @@ this is my sample course sdkfsfdjkhds
 sdfdskjf
 
 
-dsfhffdskj
+THIS IS MY EDITED CONTENT...
 dsmsdkj
 
 
-dbjksdjgsd
-
-smdgkjs
+dbjksdjgs
 
 kdkhgjks
